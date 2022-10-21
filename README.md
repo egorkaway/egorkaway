@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @egorkaway
 - 👀 I’m interested in maps, weather, and a digital tween of the whole planet 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... or off
 - 📫 How to reach me on twitter, may be: @egorka  
 
 <!---
